@@ -5,4 +5,4 @@ tags: [BFA]
 ---
 
 测试服1号BOSS图解
-![](http://7xnpvq.com1.z0.glb.clouddn.com/1%E5%8F%B7boss.jpg)
+![](http://cdn.get-on.cn/1%E5%8F%B7boss.jpg)
