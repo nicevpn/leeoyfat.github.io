@@ -14,6 +14,10 @@ https://www.warcraftlogs.com/guild/id/372282
 公会NGA招募帖    
 http://bbs.nga.cn/read.php?tid=14547966   
 
- 
+幻化大赛报名帖
+https://shimo.im/sheet/b7hZWvsQ3sUzDzr2
 
 
+
+dota 开黑群组（steam）
+https://s.team/chat/CHeb0UNx
